@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Ibraheem-Youngdeveloper
-- 👀 I’m interested in How technology advance the country today
+- 👀 I’m interested in How technology advance the World Everyday
 - 🌱 I’m currently learning HTML,CSS,JAVASCRIPT AND PHYTHON
-- 💞️ I’m looking to collaborate on who will teach me perfectly
+- 💞️ I am Also a Young Hacker
 - 📫 How to reach me my email: ibraheemsullayman@outlook.com
 - 😄 Pronouns: learning everyday makes everyday fun
 - ⚡ Fun fact: Love to save
